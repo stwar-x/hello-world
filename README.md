@@ -3,5 +3,6 @@ just another repository
 
 Hi !! Humans 
 I am Bender Rodrigez 
-Kiss my ass 
+
+"Bite my shiny metal ass" 
 
